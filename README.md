@@ -1,4 +1,4 @@
-# [IT 大 V 韭菜恩爱史](https://cz-redit-vault.github.io/it-big-short/)
+# [IT 大 V 韭菜恩爱史(不断更新中)](https://cz-redit-vault.github.io/it-big-short/)
 
 > 另外一篇 [互联网大 V 信誉黑/灰名单（求扩散、传播、更新）](https://cz-redit-vault.github.io/credit/)
 
