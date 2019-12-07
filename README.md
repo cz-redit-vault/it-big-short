@@ -1,5 +1,7 @@
 # [IT 大 V 韭菜恩爱史](https://cz-redit-vault.github.io/it-big-short/)
 
+> [互联网大 V 信誉黑/灰名单（求扩散、传播、更新）](https://cz-redit-vault.github.io/credit/)
+
 ## 成长期
 
 8 年前小张刚出校门，身着冲锋衣，白天紧张 coding
