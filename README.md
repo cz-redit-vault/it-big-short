@@ -1,4 +1,4 @@
-# IT 大 V 韭菜恩爱史
+# [IT 大 V 韭菜恩爱史](https://cz-redit-vault.github.io/it-big-short/)
 
 ## 成长期
 
